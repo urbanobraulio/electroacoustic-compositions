@@ -1,5 +1,5 @@
 # electroacoustic-compositions
-Portfolio of electroacoustic compositions
+Composiciones electroacústicas / Electroacoustic compositions
 
 es aire un campo magnético - Variación Acusmática (2026)
 
